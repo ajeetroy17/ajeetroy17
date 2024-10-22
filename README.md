@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ajeetroy17
+- 👀 I’m interested in writing different type of programs on different problems
+- 🌱 I’m currently learning C++ and HTML, CSS and JS
+- 💞️ I’m looking to collaborate on my projects which is asigned to me. 
+- 📫 How to reach me - just leave a text msg i will contact you. 
+- 😄 Pronouns: anything you want.
